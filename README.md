@@ -6,5 +6,5 @@ DNI: база + если для вас оскорбления и буллинг 
 
 !<img width="736" height="491" alt="6b717e523971c47a3f43a6c99166ff01" src="https://github.com/user-attachments/assets/62a19703-d626-43bf-ab5c-462c089f04d9" />
 
-act like shit !<img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/Lg6VfUW2KHXFCywZ4f/giphy.gif" width="30" height="30">
+act like shit <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/Lg6VfUW2KHXFCywZ4f/giphy.gif" width="100" height="50">
 

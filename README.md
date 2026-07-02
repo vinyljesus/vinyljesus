@@ -8,7 +8,7 @@ DNI: база + если для вас оскорбления и буллинг 
 
 **_act like shit_** ㅤ  <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/Lg6VfUW2KHXFCywZ4f/giphy.gif" width="200" height="100"> ㅤ **_be THE shit_** ㅤ <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/upsDzbX3rUm8m8PScm/giphy.gif" width="200" height="100">
 
-# smth about me <img width="40" height="40" alt="26d999985d0e6f91e20b84fa27b3561b" src="https://github.com/user-attachments/assets/5b7d508f-df42-4255-a824-235660ab34be" />
+# smth about me <img width="60" height="60" alt="26d999985d0e6f91e20b84fa27b3561b" src="https://github.com/user-attachments/assets/5b7d508f-df42-4255-a824-235660ab34be" />
 
 - entp ⬫ 8w9 sx/so ⬫ pure disaster ⬫ chaotic choleric ⬫ don quixote ⬫ velf ⬫ <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExeG40c3FpZTlpbGRicmZ0eTM4MHF3amtleTYzYnYxMzRtN2twaTZuMCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/2K72Ztz6nSpwpsj2yC/giphy.gif" width="50" height="100"> arcane ⬫ cancer.
  ㅤ

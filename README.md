@@ -7,3 +7,4 @@ DNI: база + если для вас оскорбления и буллинг 
 **_act like shit_** ㅤ  <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/Lg6VfUW2KHXFCywZ4f/giphy.gif" width="200" height="100"> ㅤ **_be THE shit_** ㅤ <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/upsDzbX3rUm8m8PScm/giphy.gif" width="200" height="100">
 
 # smth about me <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExczkwYzY4ZjljbzIxYXducXFkMW9mdXltaGxkMjY2cnF1dnVkend1cCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/AHeTfHgVFPHgs/giphy.gif" width="50" height="50">
+- entp

@@ -7,22 +7,6 @@ DNI: база + если для вас оскорбления и буллинг 
 **_act like shit_** <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/Lg6VfUW2KHXFCywZ4f/giphy.gif" width="200" height="100"> ㅤ **_be THE shit_** <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/upsDzbX3rUm8m8PScm/giphy.gif" width="200" height="100">
 
 
-<div style="display: flex; align-items: flex-start; gap: 20px;">
-  <div>
-    <img src="images/твоя-жёлтая-картинка.gif" alt="Жёлтая картинка" width="300">
-  </div>
-  <div>
-    <b>THAT'S!</b><br>
-    act like shit<br>
-    be THE shit<br>
-    <br>
-    <b>NOTICE</b><br>
-    HELLO?<br>
-    VORK!<br>
-    HAHA<br>
-    LICK
-  </div>
-</div>
 
 
 

@@ -9,16 +9,4 @@ DNI: база + если для вас оскорбления и буллинг 
 # smth about me <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExczkwYzY4ZjljbzIxYXducXFkMW9mdXltaGxkMjY2cnF1dnVkend1cCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/AHeTfHgVFPHgs/giphy.gif" width="50" height="50">
 - entp ⬫ 8w9 sx/so ⬫ pure disaster ⬫ chaotic choleric ⬫ don quixote ⬫ velf ⬫ <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExeG40c3FpZTlpbGRicmZ0eTM4MHF3amtleTYzYnYxMzRtN2twaTZuMCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/2K72Ztz6nSpwpsj2yC/giphy.gif" width="50" height="100"> arcane ⬫ cancer.
  
-<div style="display: flex; align-items: center; gap: 30px;">
-  <div>   <img src="src=https://github.com/user-attachments/assets/e6c6f141-cf39-4f0b-82a4-7e08ae808b85" width="200">
-  <div style="font-size: 18px;">    <b style="font-size: 28px;">THAT'S!</b><br>
-    act like shit<br>
-    be THE shit<br>
-    <br>
-    <b>NOTICE</b><br>
-    HELLO?<br>
-    VORK!<br>
-    HAHA<br>
-    LICK
-  </div>
-</div>
+<img width="636" height="391" alt="6b717e523971c47a3f43a6c99166ff01" src="https://github.com/user-attachments/assets/605a1009-1e01-4726-992b-33eb32c0ffd0" />

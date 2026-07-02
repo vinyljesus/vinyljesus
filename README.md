@@ -22,6 +22,7 @@ DNI: база + если для вас оскорбления и буллинг 
 _фандомы, на которых у меня гиперфиксация, помечаются " ꜝꜝ "._ 
 
 ㅤㅤㅤ**все, что я смотрел:** гарри поттер ⬫ след ⬫ скам ( норвегия, франция ) ⬫ клуб винксꜝꜝ ⬫ нечжа ⬫ монстр хай ( 2д и 3д фильмы включительно ) ⬫ незнакомцы из ада ⬫ игра в кальмараꜝꜝ ⬫ ходячий замок ⬫ интервью с вампиром ⬫ орудия смерти: город костей ⬫ гачиакута ⬫ плохой и сумасшедший ⬫ бесстыжие ⬫ назови меня своим именем ⬫ жаркое соперничество ⬫ дневник психопата.
+
 ㅤㅤㅤ**все, во что я играл:** repoꜝꜝ ⬫ phasmpophobia ⬫ genshin impact ⬫ honkai: star rail ⬫ resident evilꜝꜝ ⬫ thythm hive ⬫ strinova ⬫ homicipher ⬫ saihate station ⬫ the lat of us ⬫ no, i'm not a human ⬫ friday night funkin'ꜝꜝ. 
 
 ㅤㅤㅤ**все, что я слушаю:** good charlotte ⬫ nothing but thievesꜝꜝ ⬫ set it off ⬫ fall out boy ⬫ green day ⬫ cortisꜝꜝ ⬫ pierce the veil ⬫ one ok rock ⬫ palaye royale ⬫ all time low ⬫ 5 seconds of summer ⬫ xdinary heroesꜝꜝ ⬫ good kid ⬫ yungblud ⬫ lovejoy ⬫ panic! at the disco. 

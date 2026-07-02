@@ -10,3 +10,5 @@ DNI: база + если для вас оскорбления и буллинг 
 - entp ⬫ 8w9 sx/so ⬫ pure disaster ⬫ chaotic choleric ⬫ don quixote ⬫ velf ⬫ <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExeG40c3FpZTlpbGRicmZ0eTM4MHF3amtleTYzYnYxMzRtN2twaTZuMCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/2K72Ztz6nSpwpsj2yC/giphy.gif" width="50" height="100"> arcane ⬫ cancer.
  
 <img width="636" height="391" alt="6b717e523971c47a3f43a6c99166ff01" src="https://github.com/user-attachments/assets/605a1009-1e01-4726-992b-33eb32c0ffd0" />
+
+- мне 22 года, родился в германии, городе мюнхен и все сознательное детство провел в штатах, конкретно ─ в бостоне. свободно говорю на таких языках как𝄈 английский, русский, корейский, китайский. также учу норвежский, японский и германский. а еще у меня расстройство аутистического спектра. 

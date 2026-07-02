@@ -6,7 +6,8 @@ DNI: база + если для вас оскорбления и буллинг 
 
 **_act like shit_** <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/Lg6VfUW2KHXFCywZ4f/giphy.gif" width="200" height="100"> ㅤ **_be THE shit_** <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/upsDzbX3rUm8m8PScm/giphy.gif" width="200" height="100">
 
-!<img width="736" height="491" alt="6b717e523971c47a3f43a6c99166ff01" src="https://github.com/user-attachments/assets/62a19703-d626-43bf-ab5c-462c089f04d9" />
+
+!<img width="368" height="246" alt="6b717e523971c47a3f43a6c99166ff01" src="https://github.com/user-attachments/assets/62a19703-d626-43bf-ab5c-462c089f04d9" />
 
 
 

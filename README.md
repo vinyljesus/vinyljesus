@@ -4,7 +4,7 @@ DNI: база + если для вас оскорбления и буллинг 
 
 с людьми, которые не парят себе мозги лишними вещами, легки на подъем, эквивалентно [ моим ресурсам ] общительны, жизнерадостны без токсичного оптимизма, умеют экологично справляться с эмоциями, имеют хоть какую-то осознанность и голову на плечах ─ шанс стать бесто френдо многократно повышен. ´･֊･' 
 
-**_act like shit_** <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/Lg6VfUW2KHXFCywZ4f/giphy.gif" width="200" height="100"> ㅤ **_be THE shit_** <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/upsDzbX3rUm8m8PScm/giphy.gif" width="200" height="100">
+**_act like shit_**ㅤ  <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/Lg6VfUW2KHXFCywZ4f/giphy.gif" width="200" height="100"> ㅤ **_be THE shit_** ㅤ <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZienFvbXBzcnJwOGR4anAwMW9udnNvZDlvZW9ycXVwejJueGt6cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/upsDzbX3rUm8m8PScm/giphy.gif" width="200" height="100">
 
 
 
